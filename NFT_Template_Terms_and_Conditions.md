@@ -1,4 +1,4 @@
-## **Non-fungible Token License**
+## **Non-fungible Token Terms & Conditions**
 
 **INTRODUCTION & AGREEMENT TO THESE TERMS & CONDITIONS:** This document is the "Terms & Conditions" for the non-fungible token ("NFT") project that has posted this document within its NFTs and/or at the point where its NFTs are sold. The NFT project that has posted this document within its NFTs and/or at the point where they are sold is referred to in this document as the "Project". These Terms & Conditions are a legally binding agreement regarding the Project and your rights and obligations related to it. By making a purchase from the Project or interacting with its NFTs, you are agreeing to these Terms & Conditions. PLEASE READ THESE TERMS & CONDITIONS CAREFULLY BEFORE INTERACTING WITH THE PROJECT OR ITS NFTs. THE PROJECT'S CREATOR (AS DEFINED BELOW) IS ONLY WILLING TO MAKE THE PROJECT AND THE RIGHTS STATED IN THESE TERMS & CONDITIONS AVAILABLE TO YOU IF YOU ACCEPT ALL OF THESE TERMS & CONDITIONS. IF YOU DO NOT FULLY AGREE TO THESE TERMS & CONDITIONS, YOU ARE NOT PERMITTED TO ACCESS OR USE THE PROJECTS OR ITS NFTs.
 
