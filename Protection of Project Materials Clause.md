@@ -1,0 +1,3 @@
+**PROTECTION OF PROJECT MATERIALS**
+
+You agree to cooperate in good faith with and reasonably assist the Creator (if and as requested by the Creator) to protect the Project Materials, incluidng, without limitaiton, to protect any and all intellectual property rights in the Project Materials from infringement.  You agree that the Creator hereby reserves and shall retain the rights to institute and/or maintain any and all applicable legal proceedings against third parties for this purpose (e.g., lawsuit alleging that a third party has infringed the copyrights in the Art and/or other Project Materials). To the extent necessary, you hereby grant and agree to grant to the Creator the rights to institute and maintain such proceedings.  
